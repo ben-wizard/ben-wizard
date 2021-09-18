@@ -1,4 +1,4 @@
-[![wizard](https://cdn.discordapp.com/attachments/867089107216891930/888915455002157076/wizard_tattoo.png)](https://github.com/ben-wizard/)
+[![wizard](https://cdn.discordapp.com/attachments/867089107216891930/888915455002157076/wizard_tattoo.png)](https://github.com/ben-wizard/)]
 
 <div align="center">
 <h3>Contact İnformation</h3>
